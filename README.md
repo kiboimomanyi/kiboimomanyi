@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kiboimomanyi
 - 👀 I’m interested in .coding..
-- 🌱 I’m currently learning .at maseno university..
+- 🌱 I’m currently learning .imapaxa business solution..
 - 💞️ I’m looking to collaborate on .how to build new projects..
 - 📫 How to reach me ..kiboimomanyi@gmail.com.
 
